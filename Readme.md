@@ -6,5 +6,5 @@ List nim yukk :
 Christopher.billys@gmail.com - 08111599974
 13517068@std.stei.itb.ac.id -08971848770
 
-
-TEST BILLY
+bullier
+AAAYYYY BABY
